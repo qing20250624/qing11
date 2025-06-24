@@ -41,7 +41,7 @@
 
 点击访问：<a href="https://cg66-4.pages.dev/">51吃瓜网</a>
 
-点击访问：<a href="https://pi06-1.pages.dev/">今日吃瓜</a>
+点击访问：<a href="https://cg11-1.pages.dev/">黑料社91</a>
 
 点击访问：<a href="https://cg147.pages.dev/">50度灰瓜</a>
 
